@@ -1,2 +1,2 @@
 # sadzawka
-A pan Kropa wódę żłopie - dziwimy sie panu Kropie!
+A pan Kropa wódę żłopie - dziwimy się panu Kropie!
